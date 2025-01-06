@@ -1,4 +1,4 @@
-# Pernambuco: História e Cultura
+# Pernambuco: História e Cultura 🌞⛱
 
 ## 📒 Descrição
 Este e-book descreve, de maneira breve, a história do estado de Pernambuco e traços de sua cultura
